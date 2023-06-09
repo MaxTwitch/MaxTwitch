@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MaxTwitch
-- 👀 I’m interested in www.kanker.nl
+- 👀 I’m interested in www.kanker.nl and in www.homo.nl
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on www.kanker.nl
 - 📫 How to reach me maxtwitchservice@gmail.com
